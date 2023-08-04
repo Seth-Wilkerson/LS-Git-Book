@@ -1,2 +1,2 @@
 # README #
-# MO MO info fo MO
+# ONLY MO KNOWS
